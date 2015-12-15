@@ -1,1 +1,1 @@
-Sharing some selected items from home directory.
+Some of my home files.
